@@ -1,0 +1,7 @@
+### Foreword
+
+This unabridged translation of the Ramayana is written by [Hari Prasad Shastri](http://www.worldwisdom.com/public/authors/Hari-Prasad-Shastri.aspx) and published in 1952. This work is very close to Valmiki's original since the author does not interpret the shlokas, but just translates them to their closest possible meaning that the English language allows. 
+
+One of the unique qualities of this work is the event-based separation of chapters. This allows casual readers to find and only read about the events they are interested in. His work is published here in free-text for easy accessibility, and with a hope that readers will find this format conducive for searching and sharing the divine story of Shri Rama.
+
+The *pdf* version [available](https://archive.org/details/The.Ramayana.of.Valmiki.by.Hari.Prasad.Shastri) on the internet archive has been converted into text by automatic optical character recognition which is noisy. I aim to proof-read, correct, and publish one new chapter each day for the next several weeks and also open-source this website on [GitHub](https://github.com/rahular/ramayana). If you find any mistake or would like to provide feedback/suggestions/help, please open an issue [here](https://github.com/rahular/ramayana/issues).

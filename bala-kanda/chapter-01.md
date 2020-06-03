@@ -56,7 +56,7 @@ Setting out in the company of Sugriva and others, Rama reached the sea. There he
 
 The animate and inanimate beings of the three worlds, [[19]]() the gods and the sages, gave thanks that Ravana bad been slain by Shri Rama. Shri Rama enthroned Vibishana [[20]]() as the king of the asuras and, being wholly satisfied, revived all the monkeys and asuras who had fallen in battle.
 
-In the aerial\* chariot, Pushpaka, accompanied by Sugriva, Shri Rama, a devotee of truth, reached the hermitage of Bharadwaja. From there, he sent Hanuman to Prince Bharata, as his messenger and conversing with Sugriva again mounted the aerial\* chariot and arrived at Nandigrama.
+In the aerial chariot, Pushpaka, accompanied by Sugriva, Shri Rama, a devotee of truth, reached the hermitage of Bharadwaja. From there, he sent Hanuman to Prince Bharata, as his messenger and conversing with Sugriva again mounted the aerial chariot and arrived at Nandigrama.
 
 Ever obedient to his father, Shri Rama then cut off his matted locks and with Sita occupied the throne of Ayodhya.
 
