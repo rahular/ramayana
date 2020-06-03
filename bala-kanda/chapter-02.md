@@ -1,0 +1,29 @@
+### Sage Valmiki creates the metrical form for the story
+
+The wise and eloquent Valmiki with his disciple, Bharadwaja, having listened to the words of Narada, was filled with wonder and worshipped Rama in his heart. He offered obeisance to Shri Narada, who craved permission to deport and on his request being granted he ascended through space to the heavens. Narada, having deported, the great Muni Valmiki proceeded to the banks of the river Tamasa, which was close to the Ganges. Reaching that place and seeing the pure and limpid waters, Valmiki said to his disciple: " O Bharadwaja, behold how pure is the water of the holy river, verily it is clear and pleasant like the mind of a good man. O Child, set down the waterpot and fetch me my bark robe from the hermitage. I wish to bathe in the sacred stream, delay not."
+
+Obedient to the command of his Guru, [[1]]() the disciple brought the raiment from the Sage's hermitage and returning speedily, offered it to him. Receiving the robe of bark from the hands of his disciple, the sage, with his senses fully controlled, girded it about him and while bathing repeated the traditional prayers, offering libations of water to his ancestors and the gods. Then he wandered about in the forest enjoying the beauties of nature. Now the august sage, Shri Valmiki, beheld a pair of Krauncha [[2]]() birds fearlessly disporting themselves in love. Soon after, a fowler stealing up unobserved, slew the male bird in the presence of the sage. The female bird, deprived of her yellow crested companion, who but now had been spreading his wings in the act of love to please her, perceiving him bleeding and crying out in distress, began to mourn.
+
+The heart of the sage was filled with pity on seeing the bird struck down by the fowler. Touched by the lament of the female krauncha and incensed by the cruel act of the fowler, the sage said: "O Fowler, having killed the bird in the midst of the enjoyment of love with its mate, thou shalt never attain prosperity. Do not visit the forest for many years lest evil overtake thee."
+
+Reflecting on the words he had addressed to the fowler and realising their implication, the sage said to himself: "What words are these that I have uttered, inspired by my compassion for the dying bird?"
+
+The wise and learned sage reflected a moment, and then said to his disciple: "Grieving for the dying bird, I have recited this verse of four feet, each of equal syllables, which can be sung to the vina [[3]](). May it bring me renown and may no ill be spoken of me on account of this."
+
+With great delight the disciple committed to memory the verse composed by his spiritual preceptor, who expressed his satisfaction at the skill of his pupil Bharadwaja. Bathing in the sacred river, according to the prescribed ritual, the sage returned to his hermitage, pondering over the matter. The humble and learned disciple Bbaradwaja followed the great Sage, carrying his loshta filled with water.
+
+On entering the hermitage, the sage worshipped the Lord and performed other rituals and having instructed his disciple in the tradition and the sacred history, passed into deep meditation. The Creator of the world, the Self-born, the four-faced and glorious Brahma at length appeared before the holy sage. Valmiki rose hastily, filled with astonishment, and welcoming the Deity in great humility, offered obeisance to Him. Leading Him to a seat, in profound reverence he poured forth libations of water as enjoined in the tradition, making enquiries as to His welfare. The Blessed Lord accepted the homage offered to Him and commanded the sage to be seated. Shri Valmiki occupied the place designated by Brahma and once more recollected his grief over the incident of the wicked fowler, who ruthlessly slew the bird that was so happy and cooing with delight. He recalled the grief of the female bird and read and re-read the lines :-
+
+"By the ignorant and wicked fowler, grief is born For he has wantonly slain the melodious krauncha."
+
+Shri Brahma, seeing the sage afflicted and sorrowful, said to him: "O Great Sage, let these words spontaneously uttered by thee, inspired by the death of the krauncha, be poetry. Do thou describe the whole story of Rama, who is the essence of virtue and full of the highest attributes, in accordance with what thou hast heard from Shri Narada. Do thou narrate all the known and hitherto unknown deeds of Shri Rama, Sita and Lakshmana and the asuras. Whatever relates to King Dasaratha, his wives, city, palace, sayings, conduct and what he accomplished, will be revealed to thee by my favour. None of thy words will prove false. Do thou render into verse the sacred and delightful deeds of Rama. O Sage, as long as the mountains and rivers remain on the earth, so long will the story of Shri Rama endure. So long as the story of Rama endures, so long shalt thou abide in the higher regions."
+
+Having uttered these words, Shri Brahma pondered awhile within Himself and then vanished from sight.
+
+The great sage and his disciple were filled with amazement at this event, and reading the stanza again and again, their delight grew. Repeatedly reciting the couplet, composed by Valmiki, they realised that the holy sage had expressed his sorrow in poetic form. Then Shri Valmiki meditated on the Lord within his soul and it occurred to him to relate the story of Rama in similar verse. For the good of the world, the illustrious and holy sage, therefore, began composing the life of Shri Rama in verse; that Reshma, worthy of world-wide renown, who is both generous and charming. Shri Valmiki composed the story of the life of Rama and of the slaying of Ravana in beautiful and measured stanzas, a work of infinite merit.
+
+----
+
+1. Guru. Traditional spiritual preceptor.
+2. Krauncha. Ardea jaculator, a species of heron.
+3. Vina. A musical stringed instrument.
