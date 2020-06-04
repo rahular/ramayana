@@ -5,3 +5,4 @@
     * [Ch 02: Sage Valmiki creates the metrical form for the story](/bala-kanda/chapter-02 "Sage Valmiki creates the metrical form for the story")
     * [Ch 03: The deeds of Rama that will be described in this sacred poem](/bala-kanda/chapter-03 "The deeds of Rama that will be described in this sacred poem")
     * [Ch 04: Shri Rama's sons chant the poem](/bala-kanda/chapter-04 "Shri Rama's sons chant the poem")
+    * [Ch 05: King Dasaratha's kingdom and capital](/bala-kanda/chapter-05 "King Dasaratha's kingdom and capital")
