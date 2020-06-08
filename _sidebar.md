@@ -7,3 +7,4 @@
     * [Ch 04: Shri Rama's sons chant the poem](/bala-kanda/chapter-04 "Shri Rama's sons chant the poem")
     * [Ch 05: King Dasaratha's kingdom and capital](/bala-kanda/chapter-05 "King Dasaratha's kingdom and capital")
     * [Ch 06: The city of Ayodhya](/bala-kanda/chapter-06 "The city of Ayodhya")
+    * [Ch 07: The administration of the kingdom](/bala-kanda/chapter-07 "The administration of the kingdom")
