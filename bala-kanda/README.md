@@ -7,3 +7,4 @@
 * [Chapter 05: King Dasaratha's kingdom and capital](/bala-kanda/chapter-05)
 * [Chapter 06: The city of Ayodhya](/bala-kanda/chapter-06)
 * [Chapter 07: The administration of the kingdom](/bala-kanda/chapter-07)
+* [Chapter 08: The king desires to perform a sacrifice for the birth of a son](/bala-kanda/chapter-08)
